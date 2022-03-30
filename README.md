@@ -1,3 +1,0 @@
-# Hello-Wardo
-**wakaranai**
- 
